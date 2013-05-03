@@ -1,1 +1,1 @@
-just a study
+just a study!
